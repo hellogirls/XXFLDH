@@ -2,7 +2,7 @@
 
 小X福利导航永久域名：www.dhvod.com/<br />
 小X福利导航最新地址：xxfldh.com<br />
-小X福利导航地址发布QQ群：741073135<br />
+小X福利导航地址发布QQ群：458722<br />
 防屏蔽地址①：https://www.dhvod.com/<br />
 防屏蔽地址②：https://www.dhvod.com/<br />
 动动手指将本地址发布页收藏起来，永不迷路。<br />  
