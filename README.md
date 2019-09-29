@@ -1,4 +1,4 @@
-# - 小X福利导航官方网址：www.dhvod.com/ -
+# - 小X福利导航官方网址：www.dhvod.com -
 
 小X福利导航永久域名：www.dhvod.com/<br />
 小X福利导航最新地址：xxfldh.com<br />
