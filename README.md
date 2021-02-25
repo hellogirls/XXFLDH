@@ -1,7 +1,7 @@
 # - 小X福利导航官方网址：hellogirls.github.io-
 
 小X福利导航永久域名：hellogirls.github.io/<br />
-小X福利导航最新地址：xxfldh.com<br />
+小X福利导航最新地址：hellogirls.github.io<br />
 小X福利导航地址发布QQ：408544538<br />
 防屏蔽地址①：https://hellogirls.github.io/<br />
 防屏蔽地址②：https://hellogirls.github.io/<br />
